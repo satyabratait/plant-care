@@ -2,7 +2,7 @@
 
 **Made By-**
 
-1. Sneha Shaw
+1. Sneha Shaw - Team Leader
 2. Arpana
 3. Sabir Ali Shaikh
 4. Deepak Patra
